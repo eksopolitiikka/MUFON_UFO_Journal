@@ -1,6 +1,6 @@
 # MUFON UFO Journal
 
-Previously called Skylook, MUFON UFO Journal is the official newsletter of Mutual UFO Network.
+Previously called Skylook, [MUFON UFO Journal](https://mufon.com/mufon-journal/) is the official newsletter of Mutual UFO Network.
 
 The Mutual UFO Network, a.k.a. MUFON, was born shortly before the US Air Force exited the public UFO investigative universe. The University of Colorado’s Scientific Study of Unidentified Flying Objects by Dr. Edward U. Condon in 1969 gave the Air Force the perfect excuse to end its Project Blue Book when Dr. Condon stated in his report “that we do not see any fruitful lines of advance from the study of UFO reports.” His research had found “no reason to question” the presumption that UFO reports do “not pose a defense problem.” However, the report had glossed over obvious evidence for UFOs being a genuine unknown phenomenon and had come to a predetermined conclusion before any investigation was ever undertaken.
 

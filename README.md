@@ -16,8 +16,4 @@ In these pages, which have been published without interruption since 1969, you w
  
 In addition to a well-produced monthly Journal with cutting edge articles, we also have a twice monthly newsletter frequently showcasing a case of interest, a member’s only social network called the Observer Network, and a Map App for free to members and at a price in the Google and Apple App stores for non- members which lays out our 132,000 cases in a beautiful global format.
 
-This issue will also clue you in on how we bring folks from all walks of life together each year at our World Symposium which is coming up soon in Covington Kentucky during the week of August 24 th until the 28 TH !
-
 We also produce the MUFON What’s Up radio show on the KGRA Digital Broadcasting Network, produce our own YouTube programs, provide premium members our own television network programming called MUFON TV. We even have a movie out currently called “An Accidental Truth!”
-
-If you ever wanted to know Who MUFON is, What MUFON does and Where MUFON is going for the rest of this century, we ask humbly that you download this special edition of the MUFON July 2023 Journal we have especially prepared for you. You, the UFO Enthusiast out there looking for an anchor where they can find the answers to this most perplexing question, will find a home with MUFON, The Mutual UFO Network.

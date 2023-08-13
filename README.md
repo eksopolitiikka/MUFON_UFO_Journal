@@ -13,8 +13,6 @@ MUFON consists of over 6,000 members and is the largest “functioning” member
 MUFON’s core mission is to utilize the Scientific Method to unravel the mystery of the UFO Phenomenon. This special July 2023 Issue of our monthly magazine is devoted to who we are as an organization and what we do to unravel the UFO enigma. We are offering it FREE to the public to raise awareness as to our fundamental mission!
 
 In these pages, which have been published without interruption since 1969, you will learn how we operate as a non-profit grassroots organization on a day-to-day basis, how we investigate UFOs with highly trained volunteer investigators, how we maintain a database of 132,000 UFO cases, how we find, test, and qualify our Field Investigators, and use our state-of-the-art laboratory to analyze trace evidence among other ventures we undertake with incredible enthusiasm.
-
-[In this issue](https://mufon.com/2023/07/05/the-july-2023-mufon-journal-is-free-to-the-public/), you will learn about myriad membership benefits you get by joining MUFON, as well as getting a peek into the future of where the UFO Phenomenon investigations are going and how we are at the forefront of that endeavor!
  
 In addition to a well-produced monthly Journal with cutting edge articles, we also have a twice monthly newsletter frequently showcasing a case of interest, a member’s only social network called the Observer Network, and a Map App for free to members and at a price in the Google and Apple App stores for non- members which lays out our 132,000 cases in a beautiful global format.
 
